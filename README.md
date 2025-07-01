@@ -1,3 +1,3 @@
 # conflict-practice
 Practicing conflicts
-Foxglove Journal
+2025 Foxglove Journal
